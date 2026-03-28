@@ -5,7 +5,7 @@
 <img width="290" height="330" align="center" src="https://meawsource.carrd.co/assets/images/image34.png?v=0643fa24" />
 
 
-$\text{\color{#AF8289} or ivan, skeet, etc.}$\
+$\text{\color{#AF8289} or skeet, 007n7, etc.}$\
 $\text{\color{#AF8489} 5teen 06.05 filipino}$\
 $\text{\color{#AF8689} aroace demigirl any prns}$\
 $\text{\color{#AF8989} skeet highkin (｡>﹏<)}$
