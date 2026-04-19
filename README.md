@@ -2,7 +2,7 @@
   
 <img width="380" height="500" align="right" src="https://meawsource.carrd.co/assets/images/image33.png?v=0643fa24">
 
-<img width="290" height="330" align="center" src="https://meawsource.carrd.co/assets/images/image34.png?v=0643fa24" />
+<img width="290" height="190" align="center" src="https://meawsource.carrd.co/assets/images/image34.png?v=0643fa24" />
 
 
 $\text{\color{#AF8289} or skeet, 007n7, etc.}$\
@@ -14,7 +14,5 @@ $\text{\color{#AF9089} c+h friendly}$\
 $\text{\color{#AF968A} offtab most of the time}$\
 $\text{\color{#B0A490} i hide freely!}$
 
-[<img width="70" height="70" src="https://meawsource.carrd.co/assets/images/image35.png?v=fa03bbc5">](https://rentry.co/skeeter)  [<img width="92" height="92" src="https://meawsource.carrd.co/assets/images/image36.png?v=da2947da">](https://forsaken.atabook.org/)  [<img width="75" height="75" src="https://meawsource.carrd.co/assets/images/image37.png?v=fb6237e6">]()
-
-$\text{\color{#AF968A} (straw is a wip)}$
+[<img width="40" height="20" src="https://meawsource.carrd.co/assets/images/image35.png?v=fa03bbc5">](https://rentry.co/skeeter)  [<img width="62" height="22" src="https://meawsource.carrd.co/assets/images/image36.png?v=da2947da">](https://forsaken.atabook.org/)  [<img width="45" height="25" src="https://meawsource.carrd.co/assets/images/image37.png?v=fb6237e6">]()
 </div>
